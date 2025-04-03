@@ -19,6 +19,8 @@ If we know eachother a bit closer (friends or something of the sort) you can cal
 
 A little fun fact about me, I LOOOOVE crocodiles!
 
+![](https://komarev.com/ghpvc/?username=Hellyeenbeans&color=ff69b4)
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31n77p5t7sufmogpv6ab65rklqmq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ed074c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![dffdffarrrar](https://github.com/user-attachments/assets/b78c1a17-7a4c-48f5-9d8d-c37e28f01677)
