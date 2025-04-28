@@ -18,7 +18,7 @@ I’m currently learning how to script, how to improve my artstyle(s), modeling,
 
 If we know eachother a bit closer (friends or something of the sort) you can call me Ivy instead! 
 
-A little fun fact about me, I LOOOOVE crocodiles!
+A little fun fact about me, I LOOOOVE crocodiles! Also I'm very bad at doing emotions/looking around in ponytown and accidentally do the kissing emote when I don't mean to, so sorry if I do that to you by accident, I get so embarrassed whenever I do that 😭
 
 ![](https://komarev.com/ghpvc/?username=Hellyeenbeans&color=ff69b4)
 
