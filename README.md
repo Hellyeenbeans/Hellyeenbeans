@@ -6,7 +6,7 @@ PONYTOWN
 HIYA, I’m @Hellyeenbeans!!
 I'm a pretty chill person unless it's like AGGRESSIVELY AWKWARD- but other than that hello!!! Please interact with me I swear I won't bite your hand off
 
-BYI-- I am usually offtab, due to that I don't see messages directed to me often </3, if you have anything to say to me PLEASE whisper it, I promise I don't bite <]:9 
+BYI-- I am usually offtab, due to that I don't see messages directed to me often </3, if you have anything to say to me PLEASE whisper it, I promise I don't bite >⩊\
 
 If I have the paintbrush out- like on my pony, that usually means I am drawing! Feel free to give me art requests <3, but no guaranteed I'll do them, but if I doooo, they'll be posted to my tumblr which you can find in my profile links!
 
