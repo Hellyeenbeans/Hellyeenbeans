@@ -6,26 +6,26 @@ PONYTOWN
 HIYA, I’m @Hellyeenbeans!!
 I'm a pretty chill person unless it's like AGGRESSIVELY AWKWARD- but other than that hello!!! Please interact with me I swear I won't bite your hand off
 
-BYI-- I am usually offtab, due to that I don't see messages directed to me often </3, if you have anything to say to me PLEASE whisper it, I promise I don't bite >⩊\
+❗ BYI-- I am usually offtab, due to that I don't see messages directed to me often </3, if you have anything to say to me PLEASE whisper it, I promise I don't bite >⩊\ ❗
 
-If I have the paintbrush out- like on my pony, that usually means I am drawing! Feel free to give me art requests <3, but no guaranteed I'll do them, but if I doooo, they'll be posted to my tumblr which you can find in my profile links!
+🖌️If I have the paintbrush out- like on my pony, that usually means I am drawing! Feel free to give me art requests <3, but no guaranteed I'll do them, but if I doooo, they'll be posted to my tumblr which you can find in my profile links!🖌️
 
-My fandoms are Phighting, Pressure, Regretevator, Big top Burger, The Walten Files, Fisch, CoS, FNAF, 
+🎮 My fandoms are Phighting, Pressure, Regretevator, Big top Burger, The Walten Files, Fisch, CoS, FNAF, 
 Undertale/Deltarune, Dandy's world, WWATTP, Poppy Playtime, Portal, Subnautica, Minecraft, 
-Webfishing, Mouthwashing, CRK, and Fnf , A handful, I know!
+Webfishing, Mouthwashing, CRK, and Fnf , A handful, I know! 🎮
 
-I’m currently learning how to script, how to improve my artstyle(s), modeling, and storyboarding, but I know a handful of them already.. I also animate! I swear most of the art I post is ass but I DO know when/how to lock in
+🎨 I’m currently learning how to script, how to improve my artstyle(s), modeling, and storyboarding, but I know a handful of them already.. I also animate! I swear most of the art I post is ass but I DO know when/how to lock in 🎨
 
 If we know eachother a bit closer (friends or something of the sort) you can call me Ivy instead! 
 
-A little fun fact about me, I LOOOOVE crocodiles! Also I'm very bad at doing emotions/looking around in ponytown and accidentally do the kissing emote when I don't mean to, so sorry if I do that to you by accident, I get so embarrassed whenever I do that 😭
+❤️ A little fun fact about me, I LOOOOVE crocodiles! Also I'm very bad at doing emotions/looking around in ponytown and accidentally do the kissing emote when I don't mean to, so sorry if I do that to you by accident, I get so embarrassed whenever I do that 😭 
 
-DNI-- Proshitters, racists, homophobes, peds, freaky but in a bad way people, and general dni criteria!!
+❌ DNI-- Proshitters, racists, homophobes, peds, freaky but in a bad way people, and general dni criteria!! Also people under 13 💔, sorry! ❌
 
 ![](https://komarev.com/ghpvc/?username=Hellyeenbeans&color=ff69b4)
 
 
-"What's playin'?"
+🎵 "What's playin'?"
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31n77p5t7sufmogpv6ab65rklqmq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ed074c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
