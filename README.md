@@ -38,3 +38,7 @@ My blinkie corner <3
 
 A Subspace drawing for your time!
 ![Untitled318_20250610071413](https://github.com/user-attachments/assets/0cb5f16d-f653-401a-a4b4-fdbcd7dcb8cb)
+
+
+https://github.com/user-attachments/assets/012ab246-d3e9-4818-bac8-5a6235b4766b
+
